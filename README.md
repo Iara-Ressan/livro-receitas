@@ -6,6 +6,8 @@ Olá! Bem vindo ao meu livro de receitas :plate_with_cutlery:
 
 * **Pavê**
 
+* **Bolo de cenoura**
+
   ​
 
   ​
